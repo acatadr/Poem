@@ -2,4 +2,6 @@
 This is an open source poem. All contributions would be great!
 Great poem mate I rate 8/8!
 WOW no hate, but too short poem, mate!
-I do not want to create
+This my surprise change, I hope it's not too late.
+Another change, so everyone gets a conflict - that's faith. 
+I still do not want to create
